@@ -9,7 +9,7 @@
 
 - ⚡ Curiosidade **acham que pixei um banheiro de escola**
   
-- banido permanente mente no valorant
+- banido permanentemente no valorant
 
 - não consigo jogar um jogo sem xitar de um jeito asqueroso
 
