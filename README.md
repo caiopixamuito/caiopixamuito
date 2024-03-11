@@ -8,6 +8,16 @@
 - 📫 Come chegar a mim **quando sentir a energia pesando, estou por perto**
 
 - ⚡ Curiosidade **acham que pixei um banheiro de escola**
+  
+- banido permanente mente no valorant
+
+- não consigo jogar um jogo sem xitar de um jeito asqueroso
+
+- simplesmente lindo
+
+- sei desenhar
+
+- Go LOUD💚💚
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
