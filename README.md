@@ -1,11 +1,11 @@
-<h1 align="center">Hi 👋, I'm Caio martins dos Santos</h1>
+<h1 align="center">Olá 👋, Eu Sou Caio martins dos Santos</h1>
 <h3 align="center">verme</h3>
 
-- 🔭 I’m currently working on **um website**
+- 🔭 Estou aprendendo **um website**
 
-- 🌱 I’m currently learning **java**
+- 🌱 Estou aprendendo **java**
 
-- 📫 How to reach me **quando sentir a energia pesando, estou por perto**
+- 📫 Como chaga à mim **quando sentir a energia pesando, estou por perto**
 
 - ⚡ Curiosidade **acham que pixei um banheiro de escola**
 
